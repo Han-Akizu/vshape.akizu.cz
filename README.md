@@ -1,1 +1,0 @@
-# vshape.akizu.cz
